@@ -26,7 +26,7 @@ Community Involvement
 
 Introduction 🌟
 
-QuantumAion is built on the belief that ⚛️ quantum models represent the pinnacle of complexity and innovation in our quest to understand the 🌌 universe. ⚛️ Quantum systems operate on probabilities rather than certainties, allowing particles to exist in multiple states simultaneously—a phenomenon known as superposition. These principles not only govern our 🌍 reality but could also be the underlying blueprint for all realities, potentially unlocking the mysteries of our universe and beyond.
+Brion is built on the belief that ⚛️ quantum models represent the pinnacle of complexity and innovation in our quest to understand the 🌌 universe. ⚛️ Quantum systems operate on probabilities rather than certainties, allowing particles to exist in multiple states simultaneously—a phenomenon known as superposition. These principles not only govern our 🌍 reality but could also be the underlying blueprint for all realities, potentially unlocking the mysteries of our universe and beyond.
 
 As we unlock the power of ⚛️ quantum systems, the future of technology—and our understanding of the universe—feels infinitely boundless. 💫
 
